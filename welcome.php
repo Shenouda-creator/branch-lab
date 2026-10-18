@@ -1,1 +1,1 @@
-Welcome to the shop
+Hi ther, welcome!
